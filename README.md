@@ -1,1 +1,0 @@
-# JejakKaryakuSDN008BeringinTaluk
